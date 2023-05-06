@@ -1,0 +1,2 @@
+# Ahmetyeni
+Instagram mavi tik
